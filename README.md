@@ -1,3 +1,3 @@
 # pangzi
-cd pangzi
+cd pangzi naugytpussy
 git init
